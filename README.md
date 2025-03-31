@@ -4,3 +4,4 @@ Sempre tive vontade de consolidar num resumo o que aprendi ao longo de muitos an
 Trata-se de uma série de instruções de ordem prática, embasada na melhor teoria, oriunda dos grandes mestres, mas sem excessos acadêmicos. O objetivo é beneficiar mais o homem da empresa, aquele que está lá dentro, enfrentando problemas no seu dia-a-dia, não tem tempo ou não teve oportunidade de estudos universitários. Mas por isso mesmo sente a carência de orientações técnicas que venham de um nível mais elevado, sem perder as características da simplicidade e praticidade
 CURSO BÁSICO DE ADMINISTRAÇÃO E GERÊNCIA, por Gilberto Alves Lima - Clube de Autores
 Carrinho | Udemy
+GILBERTO ALVES
